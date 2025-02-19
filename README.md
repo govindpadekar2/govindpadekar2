@@ -44,7 +44,7 @@ I’m a passionate **DevOps Engineer** with over **10 years of experience** in d
 ⚡ **Let's Connect!**
 - 💼 [LinkedIn](https://www.linkedin.com/in/your-profile) 
 - 🌐 [Portfolio](https://yourportfolio.com)
-- 📫 **Email:** your.email@example.com
+- 📫 **Email:** govind.padekar786@gmail.com
 
 ---
 
